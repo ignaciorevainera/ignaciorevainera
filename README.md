@@ -1,4 +1,4 @@
-![LinkedIn Banner](https://github.com/ignaciorevainera/ignaciorevainera/assets/137783616/fe90643f-584f-4d1b-acf4-87e5a0889910)
+![LinkedIn Banner](https://github.com/user-attachments/assets/d5714f58-408c-4aab-93ce-b9a9a56b160d)
 
 ## 🌎 LinkedIn: [Ignacio Revainera](https://www.linkedin.com/in/ignaciorevainera/)
 
